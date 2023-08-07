@@ -1,0 +1,1 @@
+# VR_Deprem_Sim-lasyonu
